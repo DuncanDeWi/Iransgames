@@ -1,0 +1,4 @@
+- 🔭 I’m currently working on school
+- 🌱 I’m currently learning anything school teaches me XD
+- 📫 How to reach me: discord irans#7306
+- 😄 Pronouns: He/Him
